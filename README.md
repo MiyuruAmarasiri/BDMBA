@@ -1,0 +1,2 @@
+# BDMBA
+In 2019, My personal challenge was to learn developing software. I have always been interested in developing software and learning a language is a great way to learn about birth skills. Learning a language is also a good intellectual challenge and developing software is a particularly difficult career for new inventions. I have had a hard time learning to code to software in the past, so this seemed like a particularly good challenge. Finally, all I have to say is that you have a talent and you go find it
